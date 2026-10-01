@@ -1,1 +1,1 @@
-# GGHS
+# GGHSS Mianwal Ranjha
